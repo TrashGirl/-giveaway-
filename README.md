@@ -1,6 +1,6 @@
 # Giveaway Account ![Logo](https://github.com/TrashGirl/-giveaway-/blob/master/dmca_logo.png) Pro Lifetime 
 ```bash
-I make this description on github, because not safe for forum
+I make this description on github, because not safe for forum (Takedown if they know this thread)
 ```
 This giveaway only for __*existing account DMCA*__ (free)
 
