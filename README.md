@@ -1,22 +1,21 @@
-# Giveaway Account ![Logo](https://github.com/TrashGirl/Giveaway/blob/master/dmca_logo.png) Pro Lifetime 
+# Giveaway Account ![Logo](https://github.com/TrashGirl/-giveaway-/blob/master/dmca_logo.png) Pro Lifetime 
 ```bash
 I make this description on github, because not safe for forum
 ```
 This giveaway only for __*existing account DMCA*__ (free)
 
-I will make you account to be Pro __Lifetime__
+I will make you account to be Pro __Lifetime__ ( Subscription ~ )
 
-![hello](https://github.com/TrashGirl/Giveaway/blob/master/Capture2.JPG)
+![hello](https://github.com/TrashGirl/-giveaway-/blob/master/Capture2.JPG)
 
 
-## How to get Account ![Logo](https://github.com/TrashGirl/Giveaway/blob/master/dmca_logo.png) Pro Lifetime?
+## How to get Account ![Logo](https://github.com/TrashGirl/-giveaway-/blob/master/dmca_logo.png) Pro Lifetime?
 
-- [x] Like this thread.
 - [x] Send me login access you DMCA account, via private message.
-- [x] Wait and i will activate  ![smiley](https://github.com/TrashGirl/Giveaway/blob/master/smiley.png)
+- [x] Wait and i will activate  ![smiley](https://github.com/TrashGirl/-giveaway-/blob/master/smiley.png)
 
 ## How to check Pro or Not?
-Click Dashboard (upper right) ![Capture](https://github.com/TrashGirl/Giveaway/blob/master/picture.png)
+Click Dashboard (upper right) ![Capture](https://github.com/TrashGirl/-giveaway-/blob/master/picture.png)
 
 __note:__ After Pro registration, please __*logout*__ and than __*Login*__ again
 
