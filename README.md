@@ -14,7 +14,7 @@ I will upgrade you account to be Pro __Lifetime__ ( Subscription ~ )
 - [x] Member at least forum since 2 months ago.
 - [x] Thumbs up my thread.
 - [x] Send me login access you DMCA account, via private message.
-- [x] Wait and i will activate  ![smiley](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/smiley.png)
+- [x] Wait and i will upgrade for you  ![smiley](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/smiley.png)
 
 ## How to check Pro or Not?
 Click Dashboard (upper right) ![Capture](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/picture.png)
