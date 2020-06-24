@@ -11,7 +11,7 @@ I will upgrade you account to be Pro __Lifetime__ ( Subscription ~ )
 
 ## How to get Account ![Logo](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/dmca_logo.png) Pro Lifetime?
 
-- [x] Member at least forum since 2 months.
+- [x] Member at least forum since 2 months ago.
 - [x] Send me login access you DMCA account, via private message.
 - [x] Wait and i will activate  ![smiley](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/smiley.png)
 
