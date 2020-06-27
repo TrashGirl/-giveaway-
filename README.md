@@ -1,4 +1,4 @@
-# Giveaway Account Upgrade ![Logo](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/dmca_logo.png) Pro Lifetime 
+# Giveaway Upgrade Account ![Logo](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/dmca_logo.png) Pro Lifetime 
 ```bash
 I make this description on github, because not safe for forum (Takedown if they know this thread)
 ```
