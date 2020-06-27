@@ -13,7 +13,7 @@ I will upgrade you account to be Pro __Lifetime__ ( Subscription ~ )
 
 - [x] Member at least forum since 3 months ago.
 - [x] Thumbs up my thread.
-- [x] Send me login access you DMCA account, via private message.
+- [x] Send me login access you DMCA account (email & password), via private message.
 - [x] Wait and i will upgrade for you  ![smiley](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/smiley.png)
 
 ## How to check Pro or Not?
